@@ -10,7 +10,7 @@ Please go to: https://www.totalwireless.com/rewards
 
 2.) Go ahead and log on with your Total Wireless Username, Phone Number, or E-mail and sign up (Join) for their rewards program. You will get 600 points (use to be only 200 points) just for signing up.
 
-3.) On the next page, enter the promo code (FOUND @ https://pastebin.com/QpsizLPL), when it asks for who referred you. You will get 8,000 bonus points (equal to $80) for this.
+3.) On the next page, enter the promo code (FOUND @ https://rebrand.ly/TotalWireless), when it asks for who referred you. You will get 8,000 bonus points (equal to $80) for this.
 
 MOST ALL other Total Wireless codes will only give you only 5,000, this gives you 8,000 bonus points.
 
