@@ -1,7 +1,7 @@
 _____________________________________________________________________________________________________
 (UPDATED) FREE 8,600 ($86) Bonus Points (Total Wireless Rewards Program) (Use to be 8,200 ($82))
 
-CURRENT/ACTIVE PROMO CODE FOUND HERE @ https://pastebin.com/QpsizLPL
+FIND A WORKING, CURRENT/ACTIVE PROMO CODE FOUND HERE @ https://rebrand.ly/TotalWireless.
 _____________________________________________________________________________________________________
 
 1.) After you've activated your prepaid card and phone(s) (depends on the plan you have, all plans are valid for this, even the $25 plan):
