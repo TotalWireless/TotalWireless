@@ -1,8 +1,6 @@
-==================================================================================================
 (UPDATED) FREE 8,600 ($86) Bonus Points (Total Wireless Rewards Program) (Use to be 8,200 ($82))
 
 CURRENT/ACTIVE PROMO CODE FOUND HERE @ https://pastebin.com/QpsizLPL
-==================================================================================================
 
 1.) After you've activated your prepaid card and phone(s) (depends on the plan you have, all plans are valid for this, even the $25 plan):
 
@@ -18,6 +16,4 @@ MOST ALL other Total Wireless codes will only give you only 5,000, this gives yo
 
 Please let me know if you have any problems or have any questions! This doesn't cost you anything. It's an incentive only for new Total Wireless users.
 
-==================================================================================================
 Past/Expired Code(s): PYCY-ECFF, ACND-5DDA, KZHS-AD6E, RYQV-D361, INMX-F07D, AGCN-E751, BUXL-587E
-==================================================================================================
