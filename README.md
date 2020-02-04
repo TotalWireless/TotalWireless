@@ -1,7 +1,7 @@
 _____________________________________________________________________________________________________
 (UPDATED) FREE 8,000 ($80) Bonus Points (Total Wireless Rewards Program)
 
-CURRENT/ACTIVE PROMO CODE: ZQEQ-68C7
+CURRENT/ACTIVE PROMO CODE: CLSN-BAA3
 _____________________________________________________________________________________________________
 
 Step 1.) After you've activated your prepaid card and phone(s) (depends on the plan you have, all plans are valid for this, even the $25 plan):
@@ -23,5 +23,5 @@ Step 4.) In total, you will earn 8,600 bonus points ($86), which can be redeemed
 Please let me know if you have any problems or have any questions! This doesn't cost you anything. It's an incentive only for new Total Wireless users.
 
 _____________________________________________________________________________________________________
-Past/Expired Code(s): PPHD-7CB0, PYCY-ECFF, ACND-5DDA, KZHS-AD6E, RYQV-D361, INMX-F07D, AGCN-E751, BUXL-587E, VTUJ-8E34, WCNZ-2358, WMLA-8B33, ZOBX-7C5B, LUGR-24FC, FVSB-8D56, QHZE-DBE8, XNSG-CE2E, WSWN-FEB0, IXDY-DEC9, EJON-10DA
+Past/Expired Code(s): PPHD-7CB0, PYCY-ECFF, ACND-5DDA, KZHS-AD6E, RYQV-D361, INMX-F07D, AGCN-E751, BUXL-587E, VTUJ-8E34, WCNZ-2358, WMLA-8B33, ZOBX-7C5B, LUGR-24FC, FVSB-8D56, QHZE-DBE8, XNSG-CE2E, WSWN-FEB0, IXDY-DEC9, EJON-10DA, ZQEQ-68C7
 _____________________________________________________________________________________________________
