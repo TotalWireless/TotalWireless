@@ -1,7 +1,7 @@
 _____________________________________________________________________________________________________
 (UPDATED) FREE 8,000 ($80) Bonus Points (Total Wireless Rewards Program)
 
-CURRENT/ACTIVE PROMO CODE: MGAI-91CB (04/05/2020)
+CURRENT/ACTIVE PROMO CODE: OULF-E8B9 (04/07/2020)
 _____________________________________________________________________________________________________
 
 Step 1.) After you've activated your prepaid card and phone(s) (depends on the plan you have, all plans are valid for this, even the $25 plan):
@@ -11,7 +11,7 @@ https://www.totalwireless.com/rewards
 
 Step 2.) Login with your Total Wireless Username, Phone Number, or E-mail and sign up (Join) for their rewards program. You will get 600 points (use to be only 200 points) just for signing up.
 
-Step 3.) On the next page, enter the promo code, MGAI-91CB, when it asks for who referred you. You will get 8,000 bonus points (equal to $80) for this.
+Step 3.) On the next page, enter the promo code, OULF-E8B9, when it asks for who referred you. You will get 8,000 bonus points (equal to $80) for this.
 
 IF YOU DO NOT SEE A SMALL WHITE BOX TO ENTER THE CODE IN, GO TO THE FOLLOWING PAGE:
 https://rewards.totalwireless.com/home/dashboard?firstLogin=1?language=en
